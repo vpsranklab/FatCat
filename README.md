@@ -17,7 +17,7 @@
 
 # 官方网站
 
-[https://inv01.fatcatcloud.cc](https://inv01.fatcatcloud.cc/register?aff=NgDxu7Qm)
+[https://www.fatcatcloud.cc](https://inv01.fatcatcloud.cc/register?aff=NgDxu7Qm)
 
 # 订阅列表
 
@@ -37,7 +37,7 @@
 
 ## 工单
 
-[提交工单](https://2o.riolu.sbs/user#/ticket)
+[提交工单](https://w02.fcweba04.cc/ticket)
 
 ## Telegram
 
