@@ -1,4 +1,4 @@
-# 肥猫云FatCat官方地址
+# 肥猫云机场 - 官网网站发布页
 
 [肥猫云FatCat](https://inv01.fatcatcloud.cc/register?aff=NgDxu7Qm)，全中转大带宽全部节点原生IP，全部节点解锁ChatGPT、TikTok等。支持所有流媒体，包括NetFlix（自制 非自制），Disney+,HBO 等。
 所有节点不限速，全部1x倍率。
